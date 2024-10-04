@@ -1,1 +1,1 @@
-# amitsainani.github-.io
+# amitsainani.github.io
